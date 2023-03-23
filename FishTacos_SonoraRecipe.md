@@ -12,3 +12,5 @@ Fish: Any white one you like will do the job. I like cod
 Corn tortillas.
 
 Sauces, pickeled onions, lemon, cilantro, onion. For garnishing.
+
+Magic word: taco
